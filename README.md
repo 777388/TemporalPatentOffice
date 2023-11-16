@@ -14,3 +14,5 @@ Set.inMarked: Set theory so that extensions in the verbal categories (Anagrams, 
 PTSD: In Case of Take Overs, Compile licenses down to a single letter, usage for Stories, Theoreticals, Concepts in high linguist energy levels.
 
 BackToSleep: In Case of Mass Hysteria over PTSD, Shepherds Speech.
+
+Modtect: Based on Situational Mode (Normal, No Resistance, Simp, Assume Resistance) if Limits are broken regarding patents and licenses, determine what their position will be in relation to others when given a number sequence of Modulus.
