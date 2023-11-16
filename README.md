@@ -16,3 +16,7 @@ PTSD: In Case of Take Overs, Compile licenses down to a single letter, usage for
 BackToSleep: In Case of Mass Hysteria over PTSD, Shepherds Speech.
 
 Modtect: Based on Situational Mode (Normal, No Resistance, Simp, Assume Resistance) if Limits are broken regarding patents and licenses, determine what their position will be in relation to others when given a number sequence of Modulus.
+
+Diagram:![F_FkEWfagAAXFQ6](https://github.com/777388/TemporalPatentOffice/assets/96343159/ddf7b31e-15b6-4476-9c5e-c186a2401fbe)
+
+
